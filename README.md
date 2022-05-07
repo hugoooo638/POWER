@@ -1,0 +1,2 @@
+# POWER
+knowledge is power
